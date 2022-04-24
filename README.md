@@ -8,3 +8,4 @@
 * 阅读:
 * 写作：
 * 口语：
+1. 课程录播链接：https://pan.baidu.com/s/1cbGKtBVJK2Zbzc-hDAqy5Q  提取码：xRn8
