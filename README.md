@@ -5,7 +5,7 @@
 * 听力：
 1. 课程录播 链接：https://pan.baidu.com/s/1OP8tjDRjsnNE7q9rJQgKsg 配套资料已上传
 提取码：u00f
-2. 链接：https://pan.baidu.com/s/1gnIv-DMfnMoh5lGhfldLRA 
+2. 课程录播+数字训练 链接：https://pan.baidu.com/s/1gnIv-DMfnMoh5lGhfldLRA 
 提取码：121b  
 
 * 阅读:
