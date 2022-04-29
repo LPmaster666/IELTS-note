@@ -7,8 +7,9 @@
 提取码：u00f
 2. 课程录播+数字训练 链接：https://pan.baidu.com/s/1gnIv-DMfnMoh5lGhfldLRA 
 提取码：121b  
-
 * 阅读:
+1. 课程录播 链接: https://pan.baidu.com/s/1pmxCpTEGzWRQE5p-1toN4w 提取码: kdje
 * 写作：
+
 * 口语：
 1. 课程录播链接：https://pan.baidu.com/s/1cbGKtBVJK2Zbzc-hDAqy5Q  提取码：xRn8
