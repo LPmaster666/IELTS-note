@@ -9,5 +9,6 @@
 1. 课程录播 链接: https://pan.baidu.com/s/1pmxCpTEGzWRQE5p-1toN4w 提取码: kdje
 * 写作：
 1. 课程录播 链接：https://pan.baidu.com/s/1Wq8jkg3kSMeS492GfWo8Bw 提取码：dc5g
+2. 课程录播 链接: https://pan.baidu.com/s/1RoTgLkzsxj0gNchos7UPsQ 提取码: usmh
 * 口语：
-1. 课程录播链接：https://pan.baidu.com/s/1cbGKtBVJK2Zbzc-hDAqy5Q  提取码：xRn8
+3. 课程录播链接：https://pan.baidu.com/s/1cbGKtBVJK2Zbzc-hDAqy5Q  提取码：xRn8
