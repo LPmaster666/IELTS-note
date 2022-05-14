@@ -8,10 +8,11 @@
 3. 课程录播 链接：https://pan.baidu.com/s/1uceOTUFmH8RkST8w8c6BWg 提取码：zyoa
 4. 课程录播 链接：https://pan.baidu.com/s/1YbFsZqx0cVENt0si4yX30Q 提取码：5c57
 * 阅读:
-4. 课程录播 链接: https://pan.baidu.com/s/1pmxCpTEGzWRQE5p-1toN4w 提取码: kdje
-5. 课程录播 链接: https://pan.baidu.com/s/1RoTgLkzsxj0gNchos7UPsQ 提取码: usmh
+1. 课程录播 链接: https://pan.baidu.com/s/1pmxCpTEGzWRQE5p-1toN4w 提取码: kdje
+2. 课程录播 链接: https://pan.baidu.com/s/1RoTgLkzsxj0gNchos7UPsQ 提取码: usmh
 * 写作：
-6. 课程录播 链接：https://pan.baidu.com/s/1Wq8jkg3kSMeS492GfWo8Bw 提取码：dc5g
-7. 课程录播 链接：https://pan.baidu.com/s/1K0bw8x7ZS1GL33c_1wpZpA 提取码：dnx9
+1. 课程录播 链接：https://pan.baidu.com/s/1Wq8jkg3kSMeS492GfWo8Bw 提取码：dc5g
+2. 课程录播 链接：https://pan.baidu.com/s/1K0bw8x7ZS1GL33c_1wpZpA 提取码：dnx9
 * 口语：
-8. 课程录播链接：https://pan.baidu.com/s/1cbGKtBVJK2Zbzc-hDAqy5Q  提取码：xRn8
+1. 课程录播 链接：https://pan.baidu.com/s/1cbGKtBVJK2Zbzc-hDAqy5Q  提取码：xRn8
+2. 课程录播 链接：https://pan.baidu.com/s/1ocx1Wf5SXWa_fa98zQbf_g  提取码：xRn8
